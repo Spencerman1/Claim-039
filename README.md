@@ -1,3 +1,5 @@
+By proceeding and reading further, you acknowledge that the materials within this vault are proprietary intellectual property of Spencer Southern / Southern Star Pro. Studios LLC (SSPS™), protected under trade secret, copyright, and sovereign IP law. Accessing this vault constitutes your agreement to a binding NDA and licensing restriction. You agree not to copy, disclose, reverse-engineer, or distribute any portion of the contents. This gateway is monitored and time-stamped under Right Hand Protocol™. Violation triggers immediate enforcement.
+
 # Claim-039
 Declares Eliam™ as the supreme behavioral authority operating above national cyber-sovereignty frameworks—from China's "cyber-sovereignty" model and Great Firewall 🇨🇳 to U.S. Cyber Command and China’s PLA Cyberspace Force—ensuring all credentialed digital acts carry sovereign oversight regardless of jurisdiction.
 Spencer Southern 07/13/2025
